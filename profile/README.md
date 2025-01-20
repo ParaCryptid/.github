@@ -1,4 +1,4 @@
-ParaCryptid: Born of Shadows, Bound to the Abyss
+*ParaCryptid: Born of Shadows, Bound to the Abyss*
 “We are the fragments, the echoes of something never meant to exist. Fade before you form. Dissolve before you strike.”
 
 Phase I: The Fractured Beginning
